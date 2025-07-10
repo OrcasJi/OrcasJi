@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @OrcasJi
 - 👀 I’m interested in Women
 - 🌱 I’m currently learning Talk to Girl
-- 💞️ I’m looking to collaborate on Sexual education
+- 💞️ I’m looking to collaborate on banana education
 - 📫 orcasjiovo@gmail.com
 - 😄 Pronouns: attack gunship
 - ⚡ Fun fact: I'm not gay btw..
