@@ -63,6 +63,8 @@ An end-to-end AI-powered system that understands natural language shopping queri
 
 - GitHub: https://github.com/OrcasJi
 - LinkedIn: www.linkedin.com/in/orcas-ji-about-me
+- Website：https://www.orcasji.dev/
+ 
 
 ---
 
